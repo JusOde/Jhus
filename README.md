@@ -1,1 +1,1 @@
-# Jhus
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7844F7&background=000000&width=435&lines=I'm+looking+for+a+tutor+forks;contact+me+harveywatta@gmail.com)](https://git.io/typing-svg)
